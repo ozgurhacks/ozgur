@@ -1,0 +1,2 @@
+# ozgur
+Öylesine işte
